@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Anyone 
 - 📫 How to reach me ... througn instagram this is my ID : ananvolk
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... singel life rocks life 
+- ⚡ Fun fact: ... 
 
 <!---
 rabinranabhat/rabinranabhat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
